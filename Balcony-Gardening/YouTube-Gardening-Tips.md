@@ -1,9 +1,9 @@
 # YouTube - Creating a Balcony Garden 🌼
 
 🎥 **Title:** Creating a Balcony Garden (For Complete Beginners)  
-🔗 **Link:** https://youtu.be/YnCTNF_s4vY?si=bB9o8ZqDDIAE9K51  
-📌 **Channel:** Home Gardening Expert  
-🕐 **Duration:** ~8 mins  
+🔗 **Link:** https://youtu.be/YnCTNF_s4vY?si=fnYiy94i1effwEcC  
+📌 **Channel:** Epic Gardening  
+🕐 **Duration:** ~12 mins  
 🗒️ **Summary:**
 This video covers:
 - Choosing the right containers, including using grow bags for cost-effectiveness and considering container weight.
