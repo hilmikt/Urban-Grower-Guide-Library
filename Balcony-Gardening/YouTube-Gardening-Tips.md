@@ -6,16 +6,16 @@
 🕐 **Duration:** ~8 mins  
 🗒️ **Summary:**
 This video covers:
-- Choosing the right location and containers
-- Selecting low-maintenance plants
-- Maximizing space using vertical racks
-- Simple watering hacks
-- DIY fertilizer from kitchen waste
+- Choosing the right containers, including using grow bags for cost-effectiveness and considering container weight.
+- Selecting the right growing medium, using pre-packaged potting mix and amending with compost.
+- Assessing sun exposure on your balcony to choose suitable plants.
+- Selecting compact plant varieties and using vertical gardening techniques to maximize space.
+- Proper watering techniques, including the use of irrigation systems and checking soil moisture.
 
 ## 🌟 Why It's Included
-- Beginner-friendly explanations
-- Practical tips that anyone can apply instantly
-- Visually demonstrates space-saving techniques
+- Shares practical tips from 5 years of personal experience.
+- Provides beginner-friendly advice on the most crucial elements: containers and soil.
+- Visually shows how to implement space-saving techniques.
 
 ---
 
