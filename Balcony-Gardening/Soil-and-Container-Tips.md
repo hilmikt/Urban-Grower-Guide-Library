@@ -13,3 +13,17 @@ Soil and container choices make or break your urban farming success. Here’s ho
 - Tomatoes/chilies: 12–14 inch deep pots
 
 ## 🌱 Ideal Soil Mix (well-draining + nutrient-rich)
+- 40% Garden soil
+- 30% Compost/vermicompost
+- 20% Cocopeat
+- 10% Sand
+
+
+## 🧪 Pro Tips
+- Add neem cake or Trichoderma to prevent pests
+- Mix crushed eggshells or banana peel for natural nutrients
+- Line the bottom of pots with gravel to improve drainage
+
+---
+
+> 💡 The root zone is where your plant's life begins — treat it like royalty.
