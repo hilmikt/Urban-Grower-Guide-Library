@@ -1,4 +1,4 @@
-# [YouTube] Creating a Balcony Garden 🌼
+# YouTube - Creating a Balcony Garden 🌼
 
 🎥 **Title:** Creating a Balcony Garden (For Complete Beginners)  
 🔗 **Link:** https://youtu.be/YnCTNF_s4vY?si=bB9o8ZqDDIAE9K51  
